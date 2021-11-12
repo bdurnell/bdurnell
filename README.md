@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @bdurnell
+- 👀 I’m interested in creating new things
+- 🌱 I’m currently learning about NFTs
+- 💞️ I’m looking to collaborate with small businesses
+- 📫 Reach me at bill@valecity.tech
